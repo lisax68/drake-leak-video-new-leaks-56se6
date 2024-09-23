@@ -3,9 +3,9 @@
 The recent leak of the drake video has sparked significant debate across twitter and the internet. As a public figure, drake's leaked video private moments were thrust into the spotlight without her consent, igniting discussions about drake Leaks Full Video, consent, and the responsibilities of digital platforms.
 
 
-**[Clicik Here to watch->> Sophie Rain Leak Video](http://wildbook.top)**
+**[Clicik Here to watch->> Drake Leak Video](http://wildbook.top)**
 
-**[Clicik Here to watch->> Sophie Rain Leak Video](http://wildbook.top)**
+**[Clicik Here to watch->> Drake Leaks Video](http://wildbook.top)**
 
 
 
